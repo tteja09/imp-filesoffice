@@ -1,0 +1,1 @@
+https://examlaunchpad.pearsonvue.com/entry-point/launch-exam/AWS/OP?registrationToken=pMuZT9lJ8aCP8Hbly2AaC17qKK4na0qPewLIIxxRduUYbV5mEEojnfZooLAdXIJktgrqXA4mrdcSTWgtqO2d4F995G9Kjj%2B%2FwkGJTXU5RzBAahzxgTUyYvkeZos337CdYr6FeTYfYkOKoSP%2BvHeuXA%3D%3D&locale=en-US
